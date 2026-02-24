@@ -6,7 +6,7 @@ c + h I guess..
 
 I prefer W2I or WHISPER to INTERACT only!
 
-DNI people under 10 years old.
+DNI people under 11 years old.
 
 SOME photos with my FRIENDS!
 
