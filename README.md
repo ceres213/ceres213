@@ -1,4 +1,4 @@
-Call me Ceres, Церера orr 213!!
+Call me Ceres, Церера orr 213!! please keep in mind that I'm socially awkward qwq
 
 I USUALLY AFK at 1ST rus safe server AND 1ST safe server
 
