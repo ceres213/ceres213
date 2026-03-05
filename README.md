@@ -1,4 +1,4 @@
-Call me Ceres (Сирес. Ни керес, ни церес), Церера orr 213!! socially awkward qwq
+Call me Ceres (Сирес.Сирис. Ни керес, ни церес), Церера orr 213!! socially awkward qwq
 
 I USUALLY AFK at 1ST rus safe server AND 1ST safe server
 
