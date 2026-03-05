@@ -1,3 +1,6 @@
+![3439](https://github.com/user-attachments/assets/5d2cb91e-7e4c-4b45-9fc2-c1cec6dac44c)
+
+
 Call me Ceres (Сирес,Сирис. Ни керес, ни церес), Церера orr 213!! socially awkward qwq
 
 I USUALLY AFK at 1ST rus safe server AND 1ST safe server
@@ -14,3 +17,5 @@ SOME photos with my FRIENDS!
 <img width="272" height="297" alt="Снимок экрана 2026-02-21 132012" src="https://github.com/user-attachments/assets/a572b7e8-b792-46a9-b61f-7468659196d9" />
 
 *blink
+
+![3440](https://github.com/user-attachments/assets/fef88d9c-7098-4eb2-8083-f517a65bdbd2)
