@@ -1,6 +1,5 @@
 ![1000041835](https://github.com/user-attachments/assets/2454b363-4b2f-46b2-8011-dfce7991e673)
 
-
 <p align="center"> $\color{afc9bc}{\textsf{Call me Ceres (Сирес,Сирис. Ни керес, ни церес), Церера orr 213!! socially awkward qwq}}$
 
 ![1000041829](https://github.com/user-attachments/assets/70cfbd69-f1f2-4c47-8396-a8df4b323d52)
