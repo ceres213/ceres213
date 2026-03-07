@@ -20,10 +20,7 @@
 
 ![1000041834](https://github.com/user-attachments/assets/0b4866c9-ae2b-4cba-9a2b-87e21b0bffde)
 
-<p align="center"> $\color{afc9bc}{\textsf{SOME photos with my FRIENDS!}}$
-
-<img width="286" height="415" alt="Снимок экрана 2026-02-18 151137" src="https://github.com/user-attachments/assets/e427cfc0-a928-49f3-b339-f8af755cd2a7" />
-<img width="272" height="297" alt="Снимок экрана 2026-02-21 132012" src="https://github.com/user-attachments/assets/a572b7e8-b792-46a9-b61f-7468659196d9" />
+<p align="center"> $\color{afc9bc}{\textsf{I love my FRIENDS mixwiio and rostiksxx!}}$
 
 ![1000041832](https://github.com/user-attachments/assets/9982b49e-679d-4185-a10a-f9369ce29226)
 
