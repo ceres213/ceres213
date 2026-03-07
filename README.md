@@ -1,4 +1,4 @@
-![1000041835](https://github.com/user-attachments/assets/2454b363-4b2f-46b2-8011-dfce7991e673)
+![1000041835](https://github.com/user-attachments/assets/2454b363-4b2f-46b2-8011-dfce7991e673)"
 
 <p align="center"> $\color{afc9bc}{\textsf{Call me Ceres (Сирес,Сирис. Ни керес, ни церес), Церера orr 213!! socially awkward qwq}}$
 
