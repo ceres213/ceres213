@@ -18,4 +18,4 @@
 
 ![3440](https://github.com/user-attachments/assets/fef88d9c-7098-4eb2-8083-f517a65bdbd2)
 
-<p align="center"> $\color{afc9bc}{\textsf{*blink}}$
+*blink
