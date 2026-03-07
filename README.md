@@ -18,10 +18,10 @@
 
 <p align="center"> $\color{afc9bc}{\textsf{DNI people under 11 years old.}}$
 
-![1000041834](https://github.com/user-attachments/assets/0b4866c9-ae2b-4cba-9a2b-87e21b0bffde)
+![1000041832](https://github.com/user-attachments/assets/9982b49e-679d-4185-a10a-f9369ce29226)
 
 <p align="center"> $\color{afc9bc}{\textsf{I love my FRIENDS mixwiio and rostiksxx!}}$
 
-![1000041832](https://github.com/user-attachments/assets/9982b49e-679d-4185-a10a-f9369ce29226)
+![1000041834](https://github.com/user-attachments/assets/0b4866c9-ae2b-4cba-9a2b-87e21b0bffde)
 
 *blink
