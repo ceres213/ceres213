@@ -51,7 +51,7 @@ $\color{#9db1cc}{\textsf{socially awkward okk}}$
 </p>
 
 <p align="center"> 
-  $\color{4682b4}{\textsf{DNI ppl under 12 y.o.}}$
+  $\color{4682b4}{\textsf{DNI: people under 12 years old}}$
 </p>
 
 
