@@ -61,5 +61,5 @@ $\color{#9db1cc}{\textsf{socially awkward okk}}$
 </p>
 
 <p align="center"> 
-<img width="30" height="30" alt="1000042275" src="https://github.com/user-attachments/assets/70e2d2b1-11e0-4738-9adf-f6e167f3f01f" />
+  <img width="30" height="30" alt="1000042276" src="https://github.com/user-attachments/assets/3ffdb666-f423-48f0-8be4-2b681953674a" />
 </p>
