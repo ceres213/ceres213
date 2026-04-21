@@ -7,7 +7,7 @@
 </p>
 
 <p align="center"> 
-  $\color{#9db1cc}{\textsf{you can call me ceres or 213 }}$
+  $\color{#9db1cc}{\textsf{you can call me CERES or 213 }}$
 </p>
 
 <p align="center"> 
@@ -15,7 +15,7 @@
 </p>
 
 <p align="center"> 
-$\color{#9db1cc}{\textsf{socially awkward okk}}$
+$\color{#9db1cc}{\textsf{socially awkward oKk}}$
 </p>
 
 <p align="center"> 
@@ -23,7 +23,7 @@ $\color{#9db1cc}{\textsf{socially awkward okk}}$
 </p>
 
 <p align="center"> 
-  $\color{#9db1cc}{\textsf{i'm usually afk so w2i !}}$
+  $\color{#9db1cc}{\textsf{i'm USUALLY AFK so W2I !!}}$
 </p>
 
 <p align="center"> 
@@ -31,7 +31,7 @@ $\color{#9db1cc}{\textsf{socially awkward okk}}$
 </p>
 
 <p align="center"> 
-  $\color{#9db1cc}{\textsf{i speak rus and a bit eng}}$
+  $\color{#9db1cc}{\textsf{i speak RUS and A BIT ENG}}$
 </p>
 
 <p align="center"> 
@@ -39,7 +39,7 @@ $\color{#9db1cc}{\textsf{socially awkward okk}}$
 </p>
 
 <p align="center"> 
-  $\color{#6699cc}{\textsf{my really best friends are Mixwiio and Rostiksxx !}}$
+  $\color{#6699cc}{\textsf{my REALLY BEST  friends are Mixwiio n Rostiksxx !}}$
 </p>
 
 <p align="center"> 
@@ -51,7 +51,7 @@ $\color{#9db1cc}{\textsf{socially awkward okk}}$
 </p>
 
 <p align="center"> 
-  $\color{4682b4}{\textsf{DNI: people under 12 years old}}$
+  $\color{4682b4}{\textsf{DNI: people under 12 years old.}}$
 </p>
 
 
@@ -62,4 +62,7 @@ $\color{#9db1cc}{\textsf{socially awkward okk}}$
 
 <p align="center"> 
   <img width="30" height="30" alt="1000042276" src="https://github.com/user-attachments/assets/3ffdb666-f423-48f0-8be4-2b681953674a" />
+</p>
+<p align="center"> 
+*blink
 </p>
