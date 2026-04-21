@@ -7,7 +7,7 @@
 </p>
 
 <p align="center"> 
-  $\color{#9db1cc}{\textsf{you can call me CERES or 213 }}$
+  $\color{#9db1cc}{\textsf{YOU can call me CERES or 213 }}$
 </p>
 
 <p align="center"> 
