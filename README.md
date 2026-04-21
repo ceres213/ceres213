@@ -23,7 +23,7 @@ $\color{#9db1cc}{\textsf{socially awkward oKk}}$
 </p>
 
 <p align="center"> 
-  $\color{#9db1cc}{\textsf{i'm USUALLY AFK so W2I !!}}$
+  $\color{#9db1cc}{\textsf{I'm USUALLY AFK so W2I !!}}$
 </p>
 
 <p align="center"> 
@@ -31,7 +31,7 @@ $\color{#9db1cc}{\textsf{socially awkward oKk}}$
 </p>
 
 <p align="center"> 
-  $\color{#9db1cc}{\textsf{i speak RUS and A BIT ENG}}$
+  $\color{#9db1cc}{\textsf{I speak RUS and A BIT ENG}}$
 </p>
 
 <p align="center"> 
@@ -39,7 +39,7 @@ $\color{#9db1cc}{\textsf{socially awkward oKk}}$
 </p>
 
 <p align="center"> 
-  $\color{#6699cc}{\textsf{my REALLY BEST  friends are Mixwiio n Rostiksxx !}}$
+  $\color{#6699cc}{\textsf{my REALLY BEST  friends are Mixwiio n Rostiksxx !!}}$
 </p>
 
 <p align="center"> 
