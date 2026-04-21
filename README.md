@@ -3,10 +3,6 @@
 
 
 <p align="center"> 
-<img width="30" height="30" alt="public" src="https://github.com/user-attachments/assets/0aced12b-bdce-42fb-8196-3d9a9d25c10b" />
-</p>
-
-<p align="center"> 
   $\color{#9db1cc}{\textsf{YOU can call me CERES or 213 }}$
 </p>
 
@@ -40,10 +36,6 @@ $\color{#9db1cc}{\textsf{socially awkward oKk}}$
 
 <p align="center"> 
   $\color{#6699cc}{\textsf{my REALLY BEST  friends are Mixwiio n Rostiksxx !!}}$
-</p>
-
-<p align="center"> 
-<img width="30" height="30" alt="public" src="https://github.com/user-attachments/assets/0aced12b-bdce-42fb-8196-3d9a9d25c10b" />
 </p>
 
 <p align="center"> 
